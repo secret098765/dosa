@@ -1,1 +1,2 @@
 # dosa
+Dosa also called as dosai (in Tamil language) is a famous South Indian breakfast or snack both in India as well as outside India. Dosa are basically rice and lentil crepes which are made with ground and fermented lentil-rice batter.

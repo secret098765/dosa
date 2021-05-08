@@ -1,0 +1,4 @@
+Preparation
+File:Dosa preparation.ogv
+Dosa making
+A mixture of rice and black gram that has been soaked in water is ground finely to form a batter. Some add a handful of soaked fenugreek seeds. The proportion of rice to lentils is generally 3:1 or 4:1. The batter is allowed to ferment overnight, before being mixed with water to get the desired consistency. The batter is then ladled onto a hot tava (griddle) greased with oil or ghee (clarified butter). It is spread out with the base of a ladle or bowl to form a pancake. It can be made either to be thick like a pancake, or thin and crispy. A dosa is served hot, either folded in half or rolled like a wrap. It is usually served with chutney and sambar. The mixture of black grams and rice can be replaced with highly refined wheat flour or semolina.
